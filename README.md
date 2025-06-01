@@ -1,0 +1,1 @@
+# Ignore-ship-mana-sail-cost-Ys-X-Nordics-mod
